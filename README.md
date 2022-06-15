@@ -1,0 +1,1 @@
+# GUMORUOYA.github.io
